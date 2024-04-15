@@ -11,15 +11,13 @@ metaDescription: >
   the MC12 while also being the most powerful Maserati to date.
 thumbnail: /assets/Maserati MCXtrema (1).avif
 ---
-**Editor** - [@_the\_tanmay\_](https://www.instagram.com/_the_tanmay_/)
+**Editor** - [_the\_tanmay\_](https://www.instagram.com/_the_tanmay_/)
 
 ![](/assets/Maserati MCXtrema.avif)
 
 Maserati’s hardcore track-only supercar based on the MC20 was revealed with 730bhp & weighing in only at 1300kg, it arrives as the spiritual successor to the MC12 while also being the most powerful Maserati to date.
 
 The MCXtrema “reflects the desire to create a racing car capable of passing on the legacy”, the brand said, adding it “celebrates the past and sets the pace for the future of the Italian luxury brand”.
-
-![](/assets/Maserati MCXtrema (1).jpg)
 
 Complete with an aero-clad, downforce focused bodywork & a futuristic cockpit, the track car is limited to just 62 examples (all already sold) priced at €1,130,000 each (after tax).
 
